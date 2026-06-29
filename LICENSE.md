@@ -1,4 +1,4 @@
-# 
+# Último bitmex trading bot preajustes for Mac OS | Premium bitmex trading bot preajustes for PC Windows. Featuring API de intercambio descentralizado and análisis de momento — optimized for maximum performance.
 
 
 
